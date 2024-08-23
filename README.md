@@ -16,7 +16,7 @@ https://quantumcoding.in/
 
 Output - 1
 
-![Screenshot 2024-08-23 194655](https://github.com/user-attachments/assets/9e5b66d5-e9f3-4559-818d-a5521338ac39)
+![Screenshot 2024-08-23 200256](https://github.com/user-attachments/assets/7e4e52f0-ffb7-4f68-b937-2a3ba17f77a7)
 
 Join Us For Latest Updates 👇
 
